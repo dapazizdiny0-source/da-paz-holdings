@@ -1,1 +1,1 @@
-# da-paz-holdings.github.io
+# dapazholdings.github.io
